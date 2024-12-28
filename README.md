@@ -1,4 +1,3 @@
-AI are more trustable than half of the womans
 
 <!---
 Ayaan-07/Ayaan-07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
